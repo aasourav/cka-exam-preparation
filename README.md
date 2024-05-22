@@ -1,1 +1,0 @@
-# cka-exam-preparation
